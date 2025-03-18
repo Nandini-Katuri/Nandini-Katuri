@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me https://www.linkedin.com/in/nandini-katuri-96637224a/
+- 📫 How to reach me nandiniik15@gmail.com
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ...
 
